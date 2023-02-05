@@ -1,0 +1,1 @@
+# gunlere-gore-fidan-boyu-hesaplama
